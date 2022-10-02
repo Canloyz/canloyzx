@@ -1,0 +1,2 @@
+# canloyzx
+Mavi tik konsept
